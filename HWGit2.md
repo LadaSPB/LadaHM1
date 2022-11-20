@@ -4,3 +4,4 @@ Milashka
 Love? love, romanse
 List
 mil
+мишка
